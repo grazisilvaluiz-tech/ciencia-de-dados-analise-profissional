@@ -99,7 +99,7 @@ O Behance é relevante para mostrar repertório visual, UX/UI e capacidade de ap
 
 ### 2.6 Feedback por pares
 
-**Feedback de Grazielle:** 
+**Feedback de Grazielle:** Eduardo apresenta boa capacidade de comunicação visual e um portfólio mais estruturado. O plano de carreira é viável porque parte de competências já iniciadas e conecta marketing a dados. A principal melhoria é reduzir a dispersão entre Design, Front-end e Dados, deixando claro qual é seu objetivo principal.
 
 **Feedback de Luara:**
 
